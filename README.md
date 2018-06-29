@@ -1,0 +1,2 @@
+# otik
+primeri..
